@@ -1,1 +1,1 @@
-<div class="tenor-gif-embed" data-postid="26566449" data-share-method="host" data-aspect-ratio="0.603125" data-width="100%"><a href="https://tenor.com/view/patch-sheep-nyn-nazrin-touhou-gif-26566449">Patch Sheep GIF</a>from <a href="https://tenor.com/search/patch-gifs">Patch GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+![](Green_troll_Face)
